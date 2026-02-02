@@ -1,0 +1,2 @@
+# 63136281-d284-40e3-b916-32b1b611a9cb-hero-3
+Hero section variant 3 for 63136281-d284-40e3-b916-32b1b611a9cb
